@@ -1,5 +1,5 @@
 # Papers
-Small Storage of Papers that accompanied me so far in Academia. With publishing date and confirmation of consent for publishing by co-authors.
+Small Storage of Papers I have participated in. With publishing date and confirmation of consent for publishing by co-authors.
 
 Sorted by 
 
